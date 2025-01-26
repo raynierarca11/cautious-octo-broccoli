@@ -2,15 +2,8 @@
 calculator 
 
 
-let min
-const max
-var calc
+not yet finished.
 
-calculator
-
-hmm
-
-yeah
 
 <!-- This will be a calculator not yet finish and its ongoing. 
 
