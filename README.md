@@ -6,7 +6,9 @@ not yet finished.
 ongoing
 
 
-Hello Nanany I greeted you today too.
+Hello Nanay I greeted you today too.
+
+Hello world! and mom
 
 
 <!-- This will be a calculator not yet finish and its ongoing. 
