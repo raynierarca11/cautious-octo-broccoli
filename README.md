@@ -10,6 +10,8 @@ Hello Nanay I greeted you today too.
 
 Hello world! and mom
 
+Hello code! and Python
+
 
 <!-- This will be a calculator not yet finish and its ongoing. 
 
