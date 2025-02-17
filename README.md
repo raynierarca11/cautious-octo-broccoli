@@ -24,6 +24,8 @@ Be a data analyst in the future
 
 Yes self
 
+Adulting is so d---
+
 <!-- This will be a calculator not yet finish and its ongoing. 
 
 
