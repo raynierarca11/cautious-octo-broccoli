@@ -24,7 +24,9 @@ Be a data analyst in the future
 
 Yes self
 
-Adulting is so d---
+Adulting is h-a-r.d.
+
+Hello 😧
 
 <!-- This will be a calculator not yet finish and its ongoing. 
 
