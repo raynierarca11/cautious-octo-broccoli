@@ -26,7 +26,7 @@ Yes self
 
 Adulting is h-a-r.d.
 
-Hello 😧
+Hello 😧.
 .
 <!-- This will be a calculator not yet finish and its ongoing. 
 
