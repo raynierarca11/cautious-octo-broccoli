@@ -2,7 +2,7 @@
 calculator 
 
 
-not yet finished.
+not yet finished. .
 ongoing
 
 qqq
