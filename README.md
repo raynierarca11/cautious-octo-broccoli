@@ -29,6 +29,8 @@ Yes self
 
 Adulting is h-a-r.d.
 
+adulting is scary 
+
 how to overcome fear and judgement?
 
 
