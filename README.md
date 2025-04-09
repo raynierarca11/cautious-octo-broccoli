@@ -27,7 +27,7 @@ Be a data analyst in the future
 
 Yes self
 
-Adulting is h-a-r.d.
+Adulting is h-a-r.d. and exhaustinggg
 
 adulting is scary 
 
