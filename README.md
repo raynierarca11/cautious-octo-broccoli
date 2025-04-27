@@ -3,7 +3,7 @@ calculator
 
 dd
 not yet finished. .
-ongoing
+ongoing.
 esadxdsss
 qqqs
 Hello Nanay I greeted you today too.eesd
