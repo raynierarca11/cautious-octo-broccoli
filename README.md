@@ -2,7 +2,7 @@
 calculator ,.,
 
 dd...,.
-not yet finished. ....,
+not yet finished. ....,..
 ongoing......yeah.,.,
 esadxdsss,......,.....happy
 qqqs.......yeah.,.,.,...
