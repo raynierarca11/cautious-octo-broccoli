@@ -6,7 +6,7 @@ not yet finished. ....,..
 ongoing......yeah.,.,..
 esadxdsss,......,.....happy..
 qqqs.......yeah.,.,.,...
-Hello Nanay I greeted you today too.eesd.,.,..
+Hello Nanay I greeted you today too.eesd.,.,....
 ..
 Hello world! and momee..
 eqewqeqeqeqsd
